@@ -41,3 +41,8 @@ _Продукты_
 
 Шарлотка с яблоками готова. Нарежьте пирог на порционные кусочки и подайте к столу во время десерта. ![Приятного аппетита](pirog.jpg)
 
+https://www.russianfood.com/recipes/recipe.php?rid=164495
+
+https://www.russianfood.com/recipes/recipe.php?rid=141805
+
+https://www.russianfood.com/recipes/recipe.php?rid=139512
